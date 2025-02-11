@@ -1,1 +1,1 @@
-Hallo Saya Pemalu
+Hallo Saya Pemalu, Bukan Pemula
